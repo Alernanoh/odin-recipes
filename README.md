@@ -1,0 +1,1 @@
+In this project I will try to learn all the basics of wb development, I will need a lot of self-discipline beacause I'm working and studying at the moment, but I'm sure I will make it. I will also demonstrate to myself that I'm capable of doing this. Right now I know a little bit, but I'm looking forward to get all the possible knowledge that is in my reach, hope I get it.
